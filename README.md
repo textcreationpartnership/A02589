@@ -35,9 +35,9 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A sermon of publike thanksgiuing for the wonderfull mitigation of the late mortalitie preacht before
+
 #####Body#####
-A sermon of publike thanksgiuing for the wonderfull mitigation of the late mortalitie preacht before
+Pſal. 68. verſ. 19, 20.Bleſſed be the Lord, who loadeth vs daily with benefits, euen the God of our 
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
